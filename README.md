@@ -23,4 +23,4 @@ e a escuridão.
 [Link para acessar o jogo no Itch.io](https://vennentertainment.itch.io/kurai-no-shinobi)
 
 # Download do jogo
-[Clique aqui para baixar Mansão Carvalho](https://drive.google.com/drive/folders/1h-xi1gZ0u-obE0nlbDztH6qZwjh2-ngU?usp=sharing)
+[Clique aqui para baixar Kurai no Shinobi](https://drive.google.com/drive/folders/1h-xi1gZ0u-obE0nlbDztH6qZwjh2-ngU?usp=sharing)
